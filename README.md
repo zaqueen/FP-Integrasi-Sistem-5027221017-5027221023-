@@ -3,4 +3,4 @@
 | Nama | NRP |
 | ---- | ---- |
 | Etha Felisya Br Purba | 5027221017 |
-| Rahmad Aji Wicaksono | 5027221034 |
+| Salsabila Amalia Harjanto | 5027221023 |
